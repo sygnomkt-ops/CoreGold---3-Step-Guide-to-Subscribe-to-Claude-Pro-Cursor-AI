@@ -58,4 +58,4 @@
 自己动手，3 分钟彻底告别拒付：
 
 👉 **[点击这里注册 CoreGold，立即开卡体验](https://app.coregold.io/signup?invite_code=ADvlj9b)**
-![Uploading 690db130b0815ce097a3bd51624a59a7.png…]()
+ 
